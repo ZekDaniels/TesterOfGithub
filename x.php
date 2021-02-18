@@ -1,1 +1,1 @@
-gi
+gifdgşldlşlg
